@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dekagetr
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...5
 - 💞️ I’m looking to collaborate on ...shbx
 - 📫 How to reach me ...543
 - 😄 Pronouns: ...fhg
