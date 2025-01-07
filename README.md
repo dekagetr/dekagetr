@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning ...5
 - 💞️ I’m looking to collaborate on ...shbx55
 - 📫 How to reach me ...54354
-- 😄 Pronouns: ...fhgasd
+- 😄 Pronouns: ...fhgasd558
+- 
 - ⚡ Fun fact: ...85dgf58wrsdfукц
 fds139
 <!---ads2dfg
