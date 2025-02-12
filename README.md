@@ -1,7 +1,7 @@
 asd2662- 👋 Hi, I’m @dekagetr
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...5
-- 💞️ I’m looking to collaborate on ...shbx5514olioi559696
+- 💞️ I’m looking to collaborate on ...shbx5514olioi559696hgnh
 - 📫 How to reach me ...543546455448th
 - 😄 Pronouns: ...fhgasd558523cvbhg
 - sfddsfvbc123122662
