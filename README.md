@@ -5,7 +5,7 @@ asd2662- 👋 Hi, I’m @dekagetr
 - 📫 How to reach me ...543546455448th
 - 😄 Pronouns: ...fhgasd558523cvbhg
 - sfddsfvbc123122662
-- ⚡ Fun fact: ...85dgf58wrsdfукц63663
+- ⚡ Fun fact: ...85dgf58wrsdfукц6366347477
 fds139333
 <!---ads2dfg
 dekagetr/dekagetr is a ✨ special ✨ repositor456y becaus456 its `README.md` (this file) appears on your GitHub profildgfe.696
