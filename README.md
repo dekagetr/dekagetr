@@ -3,7 +3,7 @@ asd2662- 👋 Hi, I’m @dekagetr
 - 🌱 I’m currently learning ...5
 - 💞️ I’m looking to collaborate on ...shbx5514olioi559696hgnh
 - 📫 How to reach me ...543546455448th
-- 😄 Pronouns: ...fhgasd558523cvbhg
+- 😄 Pronouns: ...fhgasd558523cvbhgassas
 - sfddsfvbc1231226626363
 - ⚡ Fun fact: ...85dgf58wrsdfукц636634747784846
 fds139333
