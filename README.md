@@ -4,7 +4,7 @@ vfdgfdwewexcxcdfgasd2662- 👋 Hi, I’m @dekagetr
 - 💞️ I’m looking to collaborate on ...shbx5514olioi559696hgnh4feujy
 - 📫 How to reach me ...543546455448th1xvc
 - 😄 Pronouns: ...fhgasd558523cvbhgassas
-- sfddsfvbc1231226626363
+- sfddsfvbc1231226626363gf55
 - ⚡ Fun fact: ...85dgf58wrsdfукц636634747784846hjggh
 <!---ads2dfgvcb
 dekagetr/dekagetr is a ✨ special ✨ repositor456y becaus456 its `README.md` (this file) appears on your GitHub profildgfe.696
