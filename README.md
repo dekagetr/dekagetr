@@ -5,10 +5,10 @@ hnvfdgfdwewexcxcdfgasd2662- 👋 Hi, I’m @dekagetr
 - 📫 How to reach me ...543546455448th1xvcvdfeqw33326ngngeedcvbbcvcvjghghreferedfxxgkhgmhdfdfdd
 - 😄 Pronouns: ...estgr,jjjkjregfdfddfdgfdfgbnbhghjmh
 - sfddsfvbc1231226626363gf551526faszxxzdfdthyyhthtqweqweq95+
-- ⚡ Fun fact: ...fggfbsssvcbvbcgdnggbdcbgfbgffbdffdgdfgdfhjmhjm
+- ⚡ Fun fact: ...fggfbsssvcbvbcgdnggbdcbgfbgffbdffdgdfgdfhjmhjmjk,
 <!---ads2dfgvcbdsfefwfeefwdzcmhjjhmj
-dekagetr/dekagetr is a ✨ special ✨ repositor456y becaus456 its `README.md` (this file) appears on your GitHub profildgfe.696ccx
+dekagetr/dekagetr is a ✨ special ✨ repositor456y becaus456 its `README.md` (this file) appears on your GitHub profildgfe.696ccx,k,kj,kjjk,
 You can click the Preview link to take a look at your changes.vhxcvxcv
 --->562
-cxvxcfhg
+cxvxcfhgkj,,
 fsdfds
