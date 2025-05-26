@@ -3,7 +3,7 @@ hnvfdgfdwewexcxcdfgasd2662- 👋 Hi, I’m @dekagetr
 - 🌱 I’m currently learning ...5fhgg
 - 💞️ I’m looking to collaborate on ...shbx5514olioi559696hgnh4feujybvxbnmvfd
 - 📫 How to reach me ...543546455448th1xvcvdfeqw33326ngngeedcvbbcvcvjghghreferedfxxgkhgmhdfdfdddfb
-- 😄 Pronouns: ...estgr,jjjkjregfdfddfdgfdfgbnbhghjmh
+- 😄 Pronouns: ...estgr,jjjkjregfdfddfdgfdfgbnbhghjmh262
 - sfddsfvbc1231226626363gf551526faszxxzdfdthyyhthtqweqweq95+ikukiu
 - ⚡ Fun fact: ...fggfbsssvcbvbcgdnggbdcbgfbgffbdffdgdfgdfhjmhjmjk,dbfbdf
 <!---ads2dfgvcbdsfefwfeefwdzcmhjjhmj
