@@ -1,6 +1,6 @@
 hnvfdgfdwewexcxcdfgasd2662- 👋 Hi, I’m @dekagetr
 - 👀 I’m interested in ...22
-- 🌱 I’m currently learning ...5fhgg
+- 🌱 I’m currently learning ...5fhggegregrer
 - 💞️ I’m looking to collaborate on ...shbx5514olioi559696hgnh4feujybvxbnmvfd
 - 📫 How to reach me ...543546455448th1xvcvdfeqw33326ngngeedcvbbcvcvjghghreferedfxxgkhgmhdfdfdddfbfeddsf
 - 😄 Pronouns: ...estgr,jjjkjregfdfddfdgfdfgbnbhghjmh262fggf
