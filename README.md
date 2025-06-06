@@ -1,8 +1,8 @@
 hnvfdgfdwewexcxcdfgasd2662- 👋 Hi, I’m @dekagetrnm,,nm
 - 👀 I’m interested in ...22,mnmn,nm,n65564
-- 🌱 I’m currently learning ...5fhggegregrertjfhtyjjy32juuyj
+- 🌱 I’m currently learning ...5fhggegregrertjfhtyjjy32juuyj87687
 - 💞️ I’m looking to collaborate on ...shbx5514olioi559696hgnh4feujybvxbnmvfd
-- 📫 How to reach me ...543546455448th1xvcvdfeqw33326ngngeedcvbbcvcvjghghreferedfxxgkhgmhdfdfdddfbfeddsf
+- 📫 How to reach me ...543546455448th1xvcvdfeqw33326ngngeedcvbbcvcvjghghreferedfxxgkhgmhdfdfdddfbfeddsf658
 - 😄 Pronouns: ...estgr,jjjkjregfdfddfdgfdfgbnbhghjmh262fggf
 - sfddsfvbc1231226626363gf551526faszxxzdfdthyyhthtqweqweq95+ikukiudsf
 - ⚡ Fun fact: ...fggfbsssvcbvbcgdnggbdcbgfbgffbdffdgdfgdfhjmhjmjk,dbfbdfetretrtre
